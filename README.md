@@ -16,3 +16,5 @@
 - 加入我们
 下面是已开发app
 (   :∇:)我太难了
+- [关闭所有灯](https://www.lanzous.com/i5u8foh)感谢SCH的制作
+- [摇一摇打开相机📷](http://t.cn/Ai8NOA1c)
